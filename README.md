@@ -1,0 +1,1 @@
+# speedyruns_map_screenshots
